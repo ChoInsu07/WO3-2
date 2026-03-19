@@ -1,5 +1,3 @@
 jeongwool heelo
-
-ohayo
-
 nigamonnde
+this is my unchi
